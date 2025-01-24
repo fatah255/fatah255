@@ -22,7 +22,8 @@
 ### Connect with Me :
 
 
-<a href="https://t.me/fatah_lbk" target="_blank"><img src="[https://img.shields.io/badge/-Yousef%20Dergham-0077B5?style=for-the-badge&logo=Telegram&logoColor=white](https://www.bing.com/images/search?view=detailV2&ccid=07nPONV7&id=82A64AD0F2A6874ADCE7B359B482F53305A4AADE&thid=OIP.07nPONV7xTNjzNGmcUMRCQHaHa&mediaurl=https%3a%2f%2fstatic.vecteezy.com%2fsystem%2fresources%2fpreviews%2f018%2f930%2f479%2flarge_2x%2ftelegram-logo-telegram-icon-transparent-free-png.png&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.d3b9cf38d57bc53363ccd1a671431109%3frik%3d3qqkBTP1grRZsw%26pid%3dImgRaw%26r%3d0&exph=1920&expw=1920&q=telegram+logo&simid=608006965964595145&FORM=IRPRST&ck=DD31313930A85873004E81E95AE8CE18&selectedIndex=0&itb=1)"/></a>
+
+[![Telegram]([https://your_image_url](https://www.bing.com/images/search?view=detailV2&ccid=aRfoTRlZ&id=BDEF2540C47687C5FF5FA1C6D10DC1FE4D36513C&thid=OIP.aRfoTRlZEn5AYXKRb-2vegHaEK&mediaurl=https%3a%2f%2flogospng.org%2fwp-content%2fuploads%2ftelegram.jpg&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.6917e84d1959127e406172916fedaf7a%3frik%3dPFE2Tf7BDdHGoQ%26pid%3dImgRaw%26r%3d0&exph=720&expw=1280&q=Telegram+Logo+Hoodie&simid=608028372086978624&FORM=IRPRST&ck=5C69F235F257763B5DB4CC816C9C91D1&selectedIndex=1&itb=0))](https://t.me/fatah_lbk)
 
 
 
